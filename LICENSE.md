@@ -1,4 +1,4 @@
-
+Enhance your TunnelBear experience with smart TunnelBear Addon | split-tunneling + server-switching, the #1 addon. Includes split-tunneling and server-switching for a safer and
 
 
 
